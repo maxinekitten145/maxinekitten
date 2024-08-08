@@ -12,6 +12,7 @@ Call me what suits your taste, I just wanna taste
 And I've always heard it's what's inside that counts
 
 
+![](https://www.imagensanimadas.com/img-linha-imagem-animada-0398-106357.htm)
 
 
 
