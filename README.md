@@ -32,7 +32,7 @@ You're down and you're pleading
 My head is just reeling
 
 
-
+![](https://www.imagensanimadas.com/img-linha-imagem-animada-0172-106118.htm)
 
 
 The red means I love you
