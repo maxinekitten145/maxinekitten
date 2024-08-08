@@ -11,7 +11,8 @@ Call me what suits your taste, I just wanna taste
 
 And I've always heard it's what's inside that counts
 
-![](https://cdn.discordapp.com/attachments/1129209227332829235/1175525854340726994/250591C7-A4B6-4792-8302-318183D8D296.gif?ex=66a20603&is=66a0b483&hm=5e160e631120b8d38b2da849e3f4591ddfdf3b42635b01aa95ad8564d11f800d&)
+
+
 
 
 'Cause my insides are red
