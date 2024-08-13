@@ -1,5 +1,5 @@
 
-# Mudae
+# My favorite music
 
 Unusual
 
@@ -12,7 +12,12 @@ Call me what suits your taste, I just wanna taste
 And I've always heard it's what's inside that counts
 
 
-![](https://www.imagensanimadas.com/img-linha-imagem-animada-0398-106357.htm)
+
+
+![](https://media1.tenor.com/m/ZUsVS5Jm75UAAAAC/cute-stars.gif)![](https://media1.tenor.com/m/ZUsVS5Jm75UAAAAC/cute-stars.gif)
+
+
+
 
 
 
@@ -31,8 +36,9 @@ You're down and you're pleading
 
 My head is just reeling
 
+![](https://media1.tenor.com/m/bjida4t-W-IAAAAC/cute-ribbon.gif)
 
-![](https://www.imagensanimadas.com/img-linha-imagem-animada-0172-106118.htm)
+
 
 
 The red means I love you
@@ -42,3 +48,30 @@ Tasting your blood means I love you
 The red means I love you
 
 The red means I love you
+
+
+
+![](https://media1.tenor.com/m/B-z5RTU-_nwAAAAC/aesthetic.gif)
+
+
+
+
+# About me
+
+![](https://media1.tenor.com/m/cbhDb1DZiLUAAAAC/pink.gif)
+
+> My name is Maxine
+
+
+> I have 15 years old 
+
+
+> My birthday is in september
+
+
+> I'm studing in alura
+
+
+![](https://media1.tenor.com/m/g_JSGA2xa9UAAAAC/bekind-discord.gif)
+
+> Escrito por Alura Start
